@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Hit-By-Bruh
+- 👀 I’m interested in hentai
+- 🌱 I’m currently learning nursing
+- 💞️ I’m looking to collaborate on nothing lmao
+- 📫 How to reach me: Don't
